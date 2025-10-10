@@ -1,6 +1,6 @@
 
 # 💫 Hi 👋, I'm Bibhash Kumar
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Web development || Cloud Computing
 
 Email Me 👉 ✉️ **bibhashkumar4587@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
